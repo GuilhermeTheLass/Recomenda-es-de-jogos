@@ -1,0 +1,1 @@
+Explore o mundo dos jogos com o Game Genie, um chatbot de recomendação feito com IA! Encontre seu próximo jogo favorito com recomendações personalizadas e descubra novos lançamentos.  Mergulhe na experiência e deixe a Game Genie te guiar!
